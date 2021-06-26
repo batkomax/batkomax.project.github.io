@@ -1,1 +1,1 @@
-# batkomax1.github.com
+# batkomaxproject.github.com
